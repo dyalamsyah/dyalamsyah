@@ -5,5 +5,5 @@ Perkenalkan saya **Tedi Alamsyah** seorang mahasiswa yang sedang menempuh pendid
 Selain berkuliah saya juga mengikuti suatu Organisasi di kampus yaitu **BEM Fakultas Ilmu Komputer**, tujuannya yaitu agar saya dapat lebih mengembangkan potensi yang ada dalam diri saya.
 
 Ayo terhubung dengan saya:
-* [Linkedin](https://www.linkedin.com/in/tedi-alamsyah).
-* [Instagram](https://wwww.instagram.com/dyalamsyah).
+* [Linkedin](https://www.linkedin.com/in/tedi-alamsyah)
+* [Instagram]https://www.instagram.com/dyalamsyah/
