@@ -6,4 +6,4 @@ Selain berkuliah saya juga mengikuti suatu Organisasi di kampus yaitu **BEM Faku
 
 Ayo terhubung dengan saya:
 * [Linkedin](https://www.linkedin.com/in/tedi-alamsyah)
-* [Instagram]https://www.instagram.com/dyalamsyah/
+* [Instagram](https://www.instagram.com/dyalamsyah/)
